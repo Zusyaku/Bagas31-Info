@@ -5,6 +5,8 @@ Website Bajakan Populer Indonesia
 # Gak Bajak Gak Keren 
 
 Adobe Photoshop
+https://www.mediafire.com/file/h3opp6d7qcpvhha/BAGAS31_-_Adobe.Photoshop_2022.23.0.2.101.part1.rar/file part1
+https://www.mediafire.com/file/wpnqk27vts6bztw/BAGAS31_-_Adobe.Photoshop_2022.23.0.2.101.part2.rar/file part2
 https://1fichier.com/?n5r70vg7gn0vbqxz66cu
 https://www.upload-4ever.com/eo542upacxuq
 https://www.upload-4ever.com/xkwquvgml7im
